@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/d62303bf-26bd-47d3-b827-79d75b8ba4b6)
+![image](https://github.com/user-attachments/assets/9f1e1227-2dbb-47bc-85d9-59a0b6aba424)
 
 **Результаты тестирования на фото**
 
